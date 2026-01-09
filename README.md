@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AlexanderuserHypens
 - 👀 I’m interested in learning, but other "casual" things too
-- 🌱 I’m currently learning coding in general
+- 🌱 I’m currently nothing
 - 🧑🏻 I'm a Metewwi enthusiast
 
 
